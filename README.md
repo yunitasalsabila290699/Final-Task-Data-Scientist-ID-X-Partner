@@ -1,3 +1,3 @@
-Final Project ID/X Partners 
+### ID/X Partners x Rakamin Academy
 
-Yunita Salsabila
+ata Scientist (Project-Based Virtual Internship)
